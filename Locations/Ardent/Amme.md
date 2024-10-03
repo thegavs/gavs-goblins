@@ -1,0 +1,1 @@
+Trade city on the border between Ardent and Pengelley  The 3 roads from Nivag end here.

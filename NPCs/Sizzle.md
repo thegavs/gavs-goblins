@@ -1,0 +1,1 @@
+A half orc adventure encountered in [[Nivag]]  was badly burnt by goblins when in [[Vellenoweth]]  states he hates all goblins and is out to kill them.
