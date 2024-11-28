@@ -1,0 +1,1 @@
+A peninsular off shore from Navig, wild place but rumoured to host dwarfs outcast from [[Vellenoweth]]
