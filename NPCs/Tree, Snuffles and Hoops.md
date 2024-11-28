@@ -4,7 +4,7 @@ Medium Beast, Unaligned
 
 ![](https://www.dndbeyond.com/file-attachments/0/579/stat-block-header-bar.svg)
 
-Armor Class 11
+Armor Class 11 (12 for one)
 
 Hit Points 13 (2d8 + 4)
 
