@@ -2,4 +2,6 @@ Mayor of [[Nivag]] has recently moved to a big house on the outskirts and flaunt
 
 Rewarded them for the safe return of the captain of the guard.
 
-Goblin detecting rapier glows dimly near him
+Goblin detecting rapier glows dimly near him.
+
+admits to have been captured and released by the goblins and fiddling taxes.

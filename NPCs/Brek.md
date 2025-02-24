@@ -1,1 +1,1 @@
-The weasily lackey of [[Doniert Craddick]].
+The weasily lackey of [[Doniert Craddick]].  Followed by the party into a cobblers shop a few times.
