@@ -5,3 +5,5 @@ Rewarded them for the safe return of the captain of the guard.
 Goblin detecting rapier glows dimly near him.
 
 admits to have been captured and released by the goblins and fiddling taxes.
+
+Kidnapped abused and left for dead in the woods by the party.
